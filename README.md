@@ -1,7 +1,7 @@
 -  Hi, I’m @OneO-ops
 -  I’m interested in cybersecurity, softwares and hardwares
 -  I’m currently learning electronic in college.
--  How to reach me "efoneq34@gmail.com"
+-  How to reach me "efemelis12@gmail.com"
 
 
 <!---
