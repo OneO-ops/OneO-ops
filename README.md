@@ -1,6 +1,6 @@
 -  Hi, I’m @OneO-ops
 -  I’m interested in cybersecurity, softwares and hardwares
--  I’m currently learning electronic in college.
+-  I’m currently learning electronics in college.
 -  How to reach me "efemelis12@gmail.com"
 
 
